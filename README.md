@@ -1,1 +1,0 @@
-# Ransomware-by-OHKA21
